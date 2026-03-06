@@ -50,4 +50,4 @@
 
   本プライバシーポリシーに関するご質問がございましたら、以下までご連絡ください。
 
-  メール: [lovol.game@gmail.com]
+  メール: lovol.game@gmail.com
